@@ -1,1 +1,1 @@
-# GFY408
+# The repo means *GO FUCK YOURSELF*
